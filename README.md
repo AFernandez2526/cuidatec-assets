@@ -1,0 +1,1 @@
+# cuidatec-assets
